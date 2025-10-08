@@ -1,4 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=rush0ur&color=7a4c8c&label=studs)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=rush0ur&color=6c4130&label=studs)
 
 
 <p align=center> remaking pages........... eventually

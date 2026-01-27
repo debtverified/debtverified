@@ -2,9 +2,9 @@
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ![](https://komarev.com/ghpvc/?username=rush0ur&color=1b4435&label=studs) 
 
-<p align="center"> ⁘ ͜　　𝒕𝖾𝗌﹒𝗄𝗂𝗇 𝗇𝖺𝗆𝖾𝗌　𓏶　7𝗍𝖾𝖾ղ　 ͜ ⁘
-<p align="center"> 𝗍𝗁𝖾𝗒 / ̶t̶𝗁𝖾𝗆 𝗉𝗋𝖾𝖿　::　𝖿𝗂𝖼𝗍𝗄𝗂𝗇 ^_^
+<p align="center"> ⁘ ͜　　𝒕𝖾𝗌﹒𝗄𝗂𝗇 𝗇𝖺𝗆𝖾𝗌　𓏶　7𝗍𝖾𝖾ղ　::　𝗍𝗁𝖾𝗒 / 𝖺𝗇𝗒　  ͜ ⁘
 <p align="center"> ⋅ 　𝖼 + 𝗁　𝖿𝗋𝖾𝖾𝗅𝗒 !　𓏺　𝗆𝗈𝗌𝗍𝗅𝗒 𝗈𝖿𝖿𝗍𝖺𝖻　𝗐2𝗂　 ⋅　
+<p align="center"> 𝖿𝗋𝗈𝗓𝖾𝗇 𝗌𝗈𝗎𝗅 , 𝖠𝖱𝖾𝖦𝖾𝖼𝗍 & 𝖻𝖼𝗌 𝖾𝗇𝗍𝗁𝗎𝗌𝗂𝖺𝗌𝗍
 <p align="center"> 𐂯
   
 

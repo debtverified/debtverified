@@ -8,6 +8,6 @@
 <p align="center"> 𐂯
   
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[prns cc](https://pronouns.cc/@piehiker)ㅤㅤ[ata](https://rushour.atabook.org/)ㅤㅤ[patreon](https://www.patreon.com/c/bealdhild/about)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤㅤ[prns cc](https://pronouns.cc/@piehiker)ㅤㅤ[ata](https://rushour.atabook.org/)ㅤㅤ[gunslol](https://guns.lol/azegect)
 
 ***
